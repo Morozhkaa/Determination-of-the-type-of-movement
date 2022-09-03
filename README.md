@@ -1,1 +1,1 @@
-### Determination of the type of movement" 
+### Determination of the type of movement 
